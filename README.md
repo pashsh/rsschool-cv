@@ -1,1 +1,1 @@
-**CV:** https://pashsh.github.io/rsschool-cv/cv2
+**CV:** https://pashsh.github.io/rsschool-cv/cv
